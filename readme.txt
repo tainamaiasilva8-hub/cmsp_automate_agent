@@ -1,2 +1,1 @@
-
-sala do futuro pôr favor me ajuda 😭😭😭
+me ajuda não sei como é que mexe 
